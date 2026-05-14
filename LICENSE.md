@@ -1,4 +1,4 @@
-# 
+# secure OBS Studio for PC | OBS Studio for Windows Panel | screen-capture + plugin-support offers the most advanced OBS Studio for PC | OBS Studio for Windows panel, with
 
 
 
